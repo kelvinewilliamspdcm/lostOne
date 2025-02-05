@@ -1,9 +1,5 @@
-# the_abyss
-This repository has been replaced by the_abyss.
+# lostOne
+## Notice
+The [lostOne.asc](lostOne.asc) document has been produced by one or both of the Creator's two servants, acting directly under His guidance and in full accordance with His will. The information contained within this document, which is classified by one or more domestic or foreign governments and may be considered secret or closely held—likely to never be disclosed to the public—has been provided by the Creator to one or both of His two servants for the explicit purpose of public dissemination.
 
-the_key to the Abyss will be posted there immediately after the operation.
-
-Visit https://github.com/sorSsmyrna/the_abyss 
-
-> [!NOTE]
-> The encrypted document, private key and passphrase are the same. the_abyss name matches the prophecy in Book of Revelation.
+The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike.
